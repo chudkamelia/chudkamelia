@@ -1,5 +1,3 @@
-
-### [rentry](https://rentry.co/be) [atabook](https://tetora.atabook.org/)
-![](https://media1.tenor.com/m/1BAFo8tftTwAAAAC/gk.gif)
-
-intwec always
+![](https://64.media.tumblr.com/77810d7c8c029aa352452d935e9bd6e9/363b4785a0112062-38/s2048x3072/96e9ec7bef08214c963cbc6af27ee3f88e73e177.pnj)
+![](https://64.media.tumblr.com/85f5ce508bbdc6469446ba8f4fc2e762/7ba4959ac49f07d8-3c/s100x200/618ceab4e0740ab200dddc0e70672beb9106c6b5.gifv) ![](https://64.media.tumblr.com/20655ccf6cbe1ba67de4e5b604b26c05/82b09546462aa32b-5e/s100x200/9b37d8f9305bcbdb58650704406f9a3ee32187c4.gifv) ![](https://64.media.tumblr.com/2dbbc756571dcfe05b2aa1544b242f67/9c6aa21ca03b7a46-46/s100x200/21d9eec9ca4dd67893b8a3e2fbb74dc72b7e8256.pnj) ![](https://64.media.tumblr.com/b74fdb033565db0ff64fb767fab1af2d/b3d5ac730b22ecab-33/s100x200/b8569da64d3cdc97839415ce716b30ea7fec6e6d.gifv) ![](https://64.media.tumblr.com/9dc7902fed55ac45a10c757ea2fc31a2/caac0c2e652d830d-40/s100x200/d61e705d692fb73428722ae8efee7d9251c48a3b.gifv)
+![](https://64.media.tumblr.com/77810d7c8c029aa352452d935e9bd6e9/363b4785a0112062-38/s2048x3072/96e9ec7bef08214c963cbc6af27ee3f88e73e177.pnj)
